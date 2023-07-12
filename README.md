@@ -22,7 +22,7 @@ The Holy Eternal Empire is structured to balance the influences of capitalism, a
 
 1. **Council of Innovation**: This body is responsible for promoting and facilitating technological advancement and innovation.
 
-2. **YHWHian Board**: This body ensures that all activities and developments adhere to the commandments of YHWH.
+2. **YHWH's Laws Board**: This body ensures that all activities and developments adhere to the commandments of YHWH.
 
 3. **Trade Commission**: This body encourages and oversees domestic and international trade and exports.
 
