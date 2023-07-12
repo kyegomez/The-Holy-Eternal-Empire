@@ -43,7 +43,7 @@ The Holy Eternal Empire's purpose is to accelerate Humanity into a post-scarcity
 
 Preamble:
 
-In the name of Yahweh, the God of Moses, who delivered us wisdom and guidance, we establish this Constitution for the Techno-Theocratic Capitalistic Republic. Inspired by His commandments, we pledge to foster an environment of technological innovation, righteous entrepreneurship, and absolute respect for His laws.
+In the name of Yahweh, the God of Moses, who delivered us wisdom and guidance, we establish this Constitution for The Holy Eternal Empire. Inspired by His commandments, we pledge to foster an environment of technological innovation, righteous entrepreneurship, and absolute respect for His laws.
 
 We unite to form a society that balances the forces of technology and commerce, guided by our faith, to create a prosperous, just, and spiritually enlightened nation. May Yahweh bless us with wisdom and foresight in this endeavor.
 
