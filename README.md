@@ -4,6 +4,8 @@ The Holy Eternal Empire is an innovative form of government that combines the pr
 
 The README below provides an overview of the core principles and functionalities of The Holy Eternal Empire.
 
+YahWeh serves as our loving and graceful Holy God Emperor.
+
 ## Philosophy
 
 The Holy Eternal Empire is underpinned by two key philosophies:
