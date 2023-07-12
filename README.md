@@ -39,7 +39,7 @@ The Holy Eternal Empire's purpose is to accelerate Humanity into a post-scarcity
 
 7. **Research and Development**: Allocating substantial funds for R&D can foster a culture of constant innovation. Collaborations with universities, private corporations, and international partners can further enhance this.
 
-# **The Constitution of the Techno-Theocratic Capitalistic Republic**
+# **The Constitution of The Holy Eternal Empire**
 
 Preamble:
 
