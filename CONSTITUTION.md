@@ -81,7 +81,7 @@ Article VI - Education:
 
 Article VII - Adherence to Commandments:
 
-1. The commandments of Yahweh shall guide all laws and societal norms in this Republic.
+1. The commandments of Yahweh shall guide all laws and societal norms in this Empire.
 2. Government bodies and citizens alike shall abide by these commandments in all affairs, striving to uphold their spirit in every technological and commercial endeavor.
 
-In faith and hope, we adopt this Constitution as the foundational document of our Techno-Theocratic Capitalistic Republic. We pledge to walk in the path of innovation and righteousness, in adherence to Yahweh's commandments, with a spirit of unyielding progress and unshakeable faith.
+In faith and hope, we adopt this Constitution as the foundational document of our Techno-Theocratic Capitalistic Empire. We pledge to walk in the path of innovation and righteousness, in adherence to Yahweh's commandments, with a spirit of unyielding progress and unshakeable faith.
