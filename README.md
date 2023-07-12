@@ -1,7 +1,4 @@
 # The Holy Eternal Empire
-TTC takes its inspiration from the principles of technology-driven capitalism, while honoring the laws and commandments of the God of Humanity, Yahweh, as found in the Old Testament of the Bible. 
-
-
 The Holy Eternal Empire takes its inspiration from the principles of technology-driven capitalism, while honoring the laws and commandments of the God of Humanity, Yahweh, as found in the Old Testament of the Bible. 
 
 The primary goal of this government is to encourage creation and innovation, particularly in technology and commerce, while maintaining moral and ethical standards based on religious teachings. The primary governmental duties are ensuring fair trade and business practices, encouraging technological advancements, and maintaining adherence to the commandments.
